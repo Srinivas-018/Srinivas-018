@@ -17,4 +17,4 @@
 
 ---
 [![](https://visitcount.itsvg.in/api?id=Srinivas-018&icon=6&color=1)](https://visitcount.itsvg.in)
-https://www.linkedin.com/in/prasanna-pattar-4731852b5/ https://www.facebook.com/prasanna.pattar.334 https://instagram.com/prasann__ff/?hl=en
+
