@@ -1,5 +1,5 @@
 # 💫 About Me:
-😎 I'm SRINIVAS D M.<br>🔭 I’m currently pursuing MASTER OF COMPUTER APPLICATION[MCA].<br>👯 I’m looking to collaborate on full-stack projects, coding competitions.<br>🌱 I’m currently learning web development.<br>💬 Ask me about Web Technologies.<br>📫 How to reach me<br>⚡ Fun fact I'm still Student.
+😎 I'm SRINIVAS D M.<br>🔭 I’m currently pursuing MASTER OF COMPUTER APPLICATION[Cybersecurity].<br>👯 I’m looking to collaborate on cybersecurity projects, Hackathons.<br>🌱 I’m currently practicing Ethical hacking.<br>💬 Ask me about Cyber security.<br>📫 How to reach me<br>
 
 
 ## 🌐 Socials:
